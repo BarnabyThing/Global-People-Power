@@ -2,6 +2,8 @@
 Bringing people together to find solutions to global problems - problems which are bigger than any nation can tackle alone.
 **Ambassador Proposal**
 
+Before reading on, please watch [My Ambassador Pitch](https://www.youtube.com/watch?v=stEJ_RsSTe4)
+
 **Use Democracy Earth to crowd-source a global manifesto and take action for its internationally cooperative implementation.** 
 
 Humanity is staring into the eye of a perfect storm of global problems of its own making. Calming the storm requires the implementation of global agreements based on international cooperation. Instead however, nations are competing with each other for short-term gains benefiting the few in a world-wide race to the bottom.  
