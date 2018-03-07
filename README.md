@@ -33,6 +33,7 @@ I recommend we kick start DE’s crowd-sourcing of a global manifesto by invitin
 **Taking action for global cooperation**
 
 A.	On the streets
+
 “I’d demonstrate for Democracy Earth on the street showing people how to sign-up, vote or delegate their votes to people they trust, using the Liquid Democracy tool.” [Barnaby’s Ambassador Pitch](https://www.youtube.com/watch?v=stEJ_RsSTe4)
 
 Like Occupy, but rather than a constant occupation losing momentum, I propose we hold regular monthly demonstrations. We could use slogans appealing to different value memes: “This is what democracy looks like.” “To protect what you love, take global control.” “Everyone and everything is interconnected.”  
@@ -43,6 +44,7 @@ Like Occupy, but rather than a constant occupation losing momentum, I propose we
 •	Bring food, music, art, individuality, culture, your humanity.
 
 B.	Using the system to change the system.
+
 I propose we use targeted campaigns to recruit Self-Sovereigns in nations with pending national elections. Self-Sovereigns could invite their political candidates to also become Self-Sovereign Global Citizens, to propose, debate and vote on global policy and to sign an [Accountability Contract](http://globalpeoplepower.org/one-action/politician-pioneers-accountability-agreement/) to implement the Global Manifesto* alongside other nations. At national and continental (EU) elections, politicians signing-on can gain votes from other Self-Sovereign Global Citizens prioritising their votes for fellow Self-Sovereigns. (*The revolutionary, globally empathic act of debating and voting for a global manifesto designed for the benefit of everyone, everywhere will naturally engender progressive and enlightened proposals. If, however, a politician rescinds their contract, they must notify DE in writing and also inform their constituents.) 
 
 Tools (UK) to contact candidates to become Self-Sovereign Global Citizens: 
