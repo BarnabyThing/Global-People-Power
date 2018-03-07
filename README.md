@@ -70,5 +70,5 @@ https://tweetyourmp.com/
 •	I propose that at all stages of campaigning we must avoid alienating any value group, [self/ethno/nation centric memes](http://globalpeoplepower.org/many-minds/systemicon-thinking-tool/). Only a world-centric meme which acknowledges, honours, includes and yet transcends other less-inclusive memes is practical and ethically sound. 
 
 Final Note
-[The Leap Manifesto](url)
+
 Please see [The Leap Manifesto](https://leapmanifesto.org/en/the-leap-manifesto/), which has gained the backing from Socialist Democrats[ Corbyn (UK) and Sanders (US)](https://www.commondreams.org/views/2018/02/04/radical-recipe-key-sanders-corbyn-advisors-back-leap-manifesto-canada). Their moto is “small steps are no longer enough.” The Leap Manifesto has a very similar campaign strategy to that set out above. Its proposals are radical and progressive. It was put together by global justice NGO’s in Canada. For me however, it would be more systemically comprehensive and compelling if it included vital policies such as [World Peace through Law](http://www.cadmusjournal.org/node/252), [International Monetary Reform](http://internationalmoneyreform.org/) and [Net Neutrality Laws](https://webwewant.org/). Although I support this campaign, I believe a global manifesto should be open to democratic input from new participants.
