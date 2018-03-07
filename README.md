@@ -21,6 +21,7 @@ By undertaking this highly ambitious proposal not only can we kick-start a globa
 _**Year 1**_
 
 **Democratic process and campaign strategy**
+
 **Democratic process**
 
 “To counteract thousands of years of male dominated power structures, I’d go to where women are living on the front-line of global problems to ensure they get to be first to propose what they think the world could and should agree to act on together.” [Barnaby’s Ambassador Pitch](https://www.youtube.com/watch?v=stEJ_RsSTe4)
