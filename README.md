@@ -55,10 +55,15 @@ https://tweetyourmp.com/
 **_Year 2-5._**
 
 •	People learn of existing solutions to global problems through participating in DE and further social media. As the manifesto takes shape it will win hearts and minds undermining international divide-and-rule arguments of the neo-liberal, far-right internationally competitive world order. 
+
 •	People of the world demand global cooperation to lay groundwork for manifesto implementation. 
+
 •	Global Cooperation Street Parties and festivals take off around the world and are live linked.
+
 •	Progressive political parties sign the Accountability Contract to implement the manifesto alongside other nations. They also begin to use DE to source their own manifestos.
+
 •	Through global unity and global policy coherence via the global manifesto, it becomes much easier for progressive political parties to win national elections.
+
 •	Culture wars dissipate and the world moves towards greater unity in diversity. People with strong nation/ethno-centric values begin to experience a greater connection with the wider world whilst simultaneously finding stronger connection with their traditional cultural values.  
 
 **Note on value meme inclusion:**
